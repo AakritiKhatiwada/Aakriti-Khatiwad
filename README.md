@@ -1,2 +1,2 @@
-# Aakriti-Khatiwad
+# Aakriti-Khatiwada
 Student
